@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on github
 - 📫 How to reach me on instagram @yuuahmad
 - 😄 Pronouns: ahmad yusuf maulana
-- ⚡ Fun fact: i am 22 years old 
+- ⚡ Fun fact: i am 25 years old 
 
 <!---
 yuuahmad-aii/yuuahmad-aii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
